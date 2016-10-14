@@ -1,1 +1,3 @@
 # EDAXAUDIO
+////muérete
+//pronto
